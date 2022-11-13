@@ -1,2 +1,2 @@
-# filip.github.io
+# FiloooSK.github.io
 Testovacia stránka
